@@ -17,4 +17,5 @@
 
 **Привет!**![1](https://github.com/Serednitskaya-Svetlana/Serednitskaya-Svetlana/assets/147625757/5bb1e334-9e8c-4354-92e6-fba59a3aee26)
 
-[**А вот и мои достижения!**](![1С](https://github.com/Serednitskaya-Svetlana/Serednitskaya-Svetlana/assets/147625757/60f33723-1dc5-4bb3-9f53-591cb6aea72b)
+**А вот и мои достижения!**
+(![1С](https://github.com/Serednitskaya-Svetlana/Serednitskaya-Svetlana/assets/147625757/60f33723-1dc5-4bb3-9f53-591cb6aea72b)
